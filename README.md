@@ -15,5 +15,5 @@ I build SaaS products, automate business workflows, and support cross-border M&A
 
 ## Links
 - LinkedIn: https://www.linkedin.com/in/quaziehsan
-- Email: qehsanhossain@gmail.com
+- Email: quaziehsanh@gmail.com
 - Location: Bangkok, Thailand
